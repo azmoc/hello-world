@@ -8,4 +8,4 @@ With puzzles inside friendships, we figure out this world.
 There is no end to teaching, there is no end to school,
 There is no end to knowledge, there is no end to truth.
 
-.ezolc oot er'uoy ,ziht baer nac uoy fI .azmoC nairaD zi eman yM
+.ezol> oot er'uoy ,ziht baer na> uoy fI .azmo) nairaG zi eman yM
